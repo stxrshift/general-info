@@ -1,10 +1,11 @@
 # general-info
-Hi!
-i go by thomas, len, noli or any other name of my irls, though those are the main ones i go by ^_^
+Hi! - 
+i go by len, used to go by thomas/noli/cypher etc. - 
+i am from germany and in the utc+1 / cest timezone - 
 i'm 19 years old, so usually on the 18+ server, sometimes i check out safe #2 though!
-fandoms i'm in: enhypen (#1 hyperfix. rn) regretevator (hyperfix.), ^_^/hwwhp (hyperfix.), vocaloid(very fixated on siinamota specifically), bad things, drawnout, splatoon, just shaoes & beats, =3 / wwwfp (^_^ swap au fangame), rhythm doctor, omori, let him go, valorant
-i draw and game a lot
-i am usually semi-afk, so whispers are appreciated when interacting as i may not always see your message
-c+h is always welcome! unfortunately if i don't know you you will have to interact first as i am very socially anxious and am too shy to make first moves in terms of interacting O_o
-mentally ill, please be patient
-usually in the roblox area or with friends ^_^!!
+interests: k-pop (my ult group is enhypen i am yet to get into other groups!), anime (magical girl raising project, dark moon: the blood altar, wonder egg priority and more, just ask!)  roblox psychological horror games (theres a lot), going outside, art (stxrshift on ig if you wanna check that out /nf), vocaloid, rhythm games (project diva, project sekai, osu!, rhythm hive, just shapes & beats, arcaea etc.) - 
+i am usually semi-afk, so whispers are appreciated when interacting with me as i may not always see your messages! unfortunately, there is a huge chance i will not interact with you unless you interact first or i talked to you already / we are already friends - 
+where exactly i am is hard to describe, but i'm sometimes at the lake at the bakery, the library, the mlp area, the roblox area or wherever my friends are - 
+do not invite me to parties, i am currently the leader of one therefore i will not and can not accept party invites - 
+c+h encouraged even if we don't neccesarily know each other!
+
