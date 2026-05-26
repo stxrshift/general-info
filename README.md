@@ -7,5 +7,6 @@ interests: k-pop (my ult group is enhypen i am yet to get into other groups!), a
 i am usually semi-afk, so whispers are appreciated when interacting with me as i may not always see your messages! unfortunately, there is a huge chance i will not interact with you unless you interact first or i talked to you already / we are already friends - 
 where exactly i am is hard to describe, but i'm sometimes at the lake at the bakery, the library, the mlp area, the roblox area or wherever my friends are - 
 do not invite me to parties, i am currently the leader of one therefore i will not and can not accept party invites - 
-c+h encouraged even if we don't neccesarily know each other!
+c+h encouraged even if we don't neccesarily know each other! -
+recovering irl. thomas (^_^), noli (myth/forsaken), postman (anhg), andrew (bad things), broken spawn (let him go), killjoy (valorant), booker (drawnout)
 
